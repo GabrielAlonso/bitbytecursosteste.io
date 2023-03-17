@@ -1,1 +1,0 @@
-# bitbytecursosteste.io
